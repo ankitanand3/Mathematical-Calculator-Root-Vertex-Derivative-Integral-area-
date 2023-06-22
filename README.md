@@ -1,0 +1,1 @@
+# Mathematical-Calculator-Root-Vertex-Derivative-Integral-area-
